@@ -5,3 +5,4 @@ eating a burger with no honey mustard
 eating a burger with no honey mustard
 
 [Straw-Page](https://medkitsapartment.straw.page/)
+[Pronouns page](https://en.pronouns.page/@FLESHBLOODANDGUT)
