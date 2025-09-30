@@ -1,5 +1,6 @@
-HOW DOES THIS WOOORRK HEELLPP
+                                           Won't you die tonight for love..? (baby, join me in death..)
 
+HOW DOES THIS WORK                   
 eating a burger with no honey mustard      
 eating a burger with no honey mustard  
 eating a burger with no honey mustard
