@@ -17,7 +17,7 @@
 
 
    <p align="center">
-       ✦ ⭒˚. tbh it depends on my mood if i wanna int but i REALLY like interacting like 60% of the time but i dont mind at all if you int!!! as long as youre not those kind of freaks then we good
+       ✦ ⭒˚. tbh it depends on my mood if i wanna int but i REALLY like interacting like 60% of the time but i dont mind at all if you int!!! as long as youre not those kind of freaks then we good. so yes! it is okay!!
   </p>
   
  <p align="center">
