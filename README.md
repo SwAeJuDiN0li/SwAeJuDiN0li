@@ -5,4 +5,6 @@ eating a burger with no honey mustard
 eating a burger with no honey mustard  
 eating a burger with no honey mustard
 
-[Straw-Page](https://medkitsapartment.straw.page/) [Pronouns page](https://en.pronouns.page/@FLESHBLOODANDGUT)
+  [Straw-Page](https://medkitsapartment.straw.page/)           .            [Pronouns page](https://en.pronouns.page/@FLESHBLOODANDGUT)                                                    
+
+[HUSBANDS GITHUB!!!](https://github.com/Z-283-F) check out my partners github ok? ok
