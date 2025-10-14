@@ -51,11 +51,8 @@
        THOSE kind of freaks.
   </p>
     <p align="center">
-       alfreds playhouse fans (unless you have a GOOD reason to like it.)
-  </p>
-  <p align="center">
-       welpgobye/doma haters. she was 12 and unaware of her actions. yeah throw tomatoes at me idc
-  </p>
+       alfreds playhouse fans (unless you have a good/understandable reason to like it.)
+     
   <p align="center">
        idk what to add here gulp
   </p>
