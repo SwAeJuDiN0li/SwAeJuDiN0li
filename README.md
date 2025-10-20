@@ -71,6 +71,6 @@
 
 
 
-[MY STRAWPAGE!](https://medkitsapartment.straw.page/) | [MY PRONOUNS PAGE!](https://en.pronouns.page/@FLESHBLOODANDGUT) | [MY HUSBANDS GITHUB!!!<3](https://github.com/Z-283-F) | [ATA!!](https://swaejudinoli.atabook.org/)
+[MY STRAWPAGE!](https://herewheretheworldisquiet.straw.page/) | [MY PRONOUNS PAGE!](https://en.pronouns.page/@FLESHBLOODANDGUT) | [MY HUSBANDS GITHUB!!!<3](https://github.com/Z-283-F) | [ATA!!](https://swaejudinoli.atabook.org/)
 
 
