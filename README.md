@@ -51,7 +51,8 @@
        THOSE kind of freaks.
   </p>
     <p align="center">
-       alfreds playhouse fans (unless you have a good/understandable reason to like it.)
+       alfreds playhouse fans               
+     (unless you have a good/understandable reason to like it.)
      
   <p align="center">
        idk what to add here gulp
@@ -61,7 +62,7 @@
   </p>
 
   <p align="center">
-       THATS IT FOR NOW!! CHECK OUT MY STRAWPAGE, PRONOUNS PAGE, ATA, AND MY PARTNERS GITHUB & STUFF TOO!!!
+       im not making a whole wall of text here so check out my stuff below,. :^)
   </p>
 
 . <img width="99" height="56" alt="image" src="https://github.com/user-attachments/assets/c6f5a826-12ed-4743-8fae-f248daef4c31" /> <img width="99" height="56" alt="image" src="https://github.com/user-attachments/assets/3051e086-f5f0-4b6c-9b66-594cd8dc0f08" /> ![9fbc1e5f](https://github.com/user-attachments/assets/9de898c2-86e7-4dbd-9ada-bcca63167931) <img width="99" height="56" alt="image" src="https://github.com/user-attachments/assets/00afb443-1717-448a-9669-2a0fc4280ccc" /> ![2688218_a65eb](https://github.com/user-attachments/assets/b1450c52-f8ea-46de-8a3c-de65beb2c4d9) <img width="99" height="56" alt="image" src="https://github.com/user-attachments/assets/47cebb44-64d7-4cac-a07a-36b14932e716" /> <img width="100" height="57" alt="image" src="https://github.com/user-attachments/assets/92673884-1452-451c-a0b6-d008a3edcd7e" /> <img width="99" height="56" alt="image" src="https://github.com/user-attachments/assets/9d674a08-03bc-4aaa-8bc8-57483b149465" />
