@@ -47,10 +47,8 @@
   <p align="center">
        basic dni criteria
   </p>
-    <p align="center">
-       THOSE kind of freaks.
-  </p>
-    <p align="center">
+ 
+  <p align="center">
        alfreds playhouse fans               
      (unless you have a good/understandable reason to like it.)
      
