@@ -20,7 +20,7 @@
 
 
    <p align="center">
-       ✦ ⭒˚. tbh it depends on my mood if i wanna int but i REALLY like interacting like 60% of the time but i dont mind at all if you int!!! as long as youre not on my dni then we good. so yes! it is okay!!
+       ✦ ⭒˚. tbh it depends on my mood if i wanna int but i REALLY like interacting like 60% of the time but i dont mind at all if you int!!! as long as youre not on my dni then we good. so yes! it is okay!! unless stated ofc <3
   </p>
 
 <p align="center">
