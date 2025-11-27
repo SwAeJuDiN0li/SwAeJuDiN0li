@@ -67,6 +67,6 @@
 
 
 
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ[my strawpage](https://herewheretheworldisquiet.straw.page/) | [my pronouns page](https://en.pronouns.page/@FLESHBLOODANDGUT) | [MY HUSBANDS GITHUB!!!<3](https://github.com/Z-283-F) | [ata](https://swaejudinoli.atabook.org/)
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ[my strawpage](https://herewheretheworldisquiet.straw.page/) | [my pronouns page](https://en.pronouns.page/@FLESHBLOODANDGUT) | [MY HUSBANDS GITHUB!!!<3](https://github.com/Z-283-F) | [ata](https://swaejudinoli.atabook.org/)
 
 
