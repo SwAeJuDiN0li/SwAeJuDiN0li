@@ -1,8 +1,5 @@
-
- ![2678537_d7727](https://github.com/user-attachments/assets/3a72c914-1128-452d-8ee6-0287eeb43cfe)
-
  <p align="center">
-      ✦ ⭒˚. " There was a time i ruled the skies, covered in shades of blue.. " ✮⋆˙ · ⋆.
+      <a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Fira+Code&duration=1000&pause=1000&color=5F417D&center=true&vCenter=true&width=435&lines=There+was+a+time+i+ruled+the+skies%2C;covered+in+shades+of+blue." alt="Typing SVG" /></a>
   </p>
 <p align="center">
       <img width="1280" height="920" alt="image" src="https://github.com/user-attachments/assets/4bd10787-9536-4388-9da2-f71c79a17b9d" />                                         
