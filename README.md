@@ -60,13 +60,13 @@
        im not making a whole wall of text here so check out my stuff below,. :^)
   </p>
 
-. <img width="99" height="56" alt="image" src="https://github.com/user-attachments/assets/c6f5a826-12ed-4743-8fae-f248daef4c31" /> <img width="99" height="56" alt="image" src="https://github.com/user-attachments/assets/3051e086-f5f0-4b6c-9b66-594cd8dc0f08" /> ![9fbc1e5f](https://github.com/user-attachments/assets/9de898c2-86e7-4dbd-9ada-bcca63167931) <img width="99" height="56" alt="image" src="https://github.com/user-attachments/assets/00afb443-1717-448a-9669-2a0fc4280ccc" /> <img width="99" height="56" alt="image" src="https://github.com/user-attachments/assets/e1e5077e-7111-4abf-9c87-0d4b476e004d" /> <img width="99" height="56" alt="image" src="https://github.com/user-attachments/assets/47cebb44-64d7-4cac-a07a-36b14932e716" /> <img width="100" height="57" alt="image" src="https://github.com/user-attachments/assets/92673884-1452-451c-a0b6-d008a3edcd7e" /> <img width="99" height="56" alt="image" src="https://github.com/user-attachments/assets/9d674a08-03bc-4aaa-8bc8-57483b149465" />
+ㅤ <img width="99" height="56" alt="image" src="https://github.com/user-attachments/assets/c6f5a826-12ed-4743-8fae-f248daef4c31" /> <img width="99" height="56" alt="image" src="https://github.com/user-attachments/assets/3051e086-f5f0-4b6c-9b66-594cd8dc0f08" /> ![9fbc1e5f](https://github.com/user-attachments/assets/9de898c2-86e7-4dbd-9ada-bcca63167931) <img width="99" height="56" alt="image" src="https://github.com/user-attachments/assets/00afb443-1717-448a-9669-2a0fc4280ccc" /> <img width="99" height="56" alt="image" src="https://github.com/user-attachments/assets/e1e5077e-7111-4abf-9c87-0d4b476e004d" /> <img width="99" height="56" alt="image" src="https://github.com/user-attachments/assets/47cebb44-64d7-4cac-a07a-36b14932e716" /> <img width="100" height="57" alt="image" src="https://github.com/user-attachments/assets/92673884-1452-451c-a0b6-d008a3edcd7e" /> <img width="99" height="56" alt="image" src="https://github.com/user-attachments/assets/9d674a08-03bc-4aaa-8bc8-57483b149465" />
 
 
 
 
 
 
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ[my strawpage](https://herewheretheworldisquiet.straw.page/) | [my pronouns page](https://en.pronouns.page/@FLESHBLOODANDGUT) | [MY HUSBANDS GITHUB!!!<3](https://github.com/Z-283-F) | [ata](https://swaejudinoli.atabook.org/)
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ[my strawpage](https://herewheretheworldisquiet.straw.page/) | [my pronouns page](https://en.pronouns.page/@FLESHBLOODANDGUT) | [MY HUSBANDS GITHUB!!!<3](https://github.com/Z-283-F) | [ata](https://swaejudinoli.atabook.org/)
 
 
