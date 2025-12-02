@@ -1,4 +1,7 @@
  <p align="center">
+  grounded. wont be as active, if you see me on pt im most likely offtab.
+ 
+ <p align="center">
    <img width="382" height="12" alt="ceeed9db" src="https://github.com/user-attachments/assets/97eab1fb-87a1-4a35-b16b-72c7ce18b591" /> <img width="382" height="12" alt="ceeed9db" src="https://github.com/user-attachments/assets/97eab1fb-87a1-4a35-b16b-72c7ce18b591" />
  <p align="center">
       <a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Fira+Code&duration=1000&pause=1000&color=5F417D&center=true&vCenter=true&width=435&lines=There+was+a+time+i+ruled+the+skies%2C;covered+in+shades+of+blue." alt="Typing SVG" /></a>
