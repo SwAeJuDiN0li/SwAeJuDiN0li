@@ -2,7 +2,7 @@
   grounded. wont be as active, if you see me on pt im most likely offtab.
  
  <p align="center">
-   <img width="382" height="12" alt="ceeed9db" src="https://github.com/user-attachments/assets/97eab1fb-87a1-4a35-b16b-72c7ce18b591" /> <img width="382" height="12" alt="ceeed9db" src="https://github.com/user-attachments/assets/97eab1fb-87a1-4a35-b16b-72c7ce18b591" />
+   <img width="382" height="12" alt="bone" src="https://github.com/user-attachments/assets/e24d9fe6-8641-435d-9c6a-739ce76f6f84" /> <img width="382" height="12" alt="bone" src="https://github.com/user-attachments/assets/cacba9b2-de22-42fe-b425-6617ab4afcf2" />
  </p>
   
  <p align="center">
@@ -21,9 +21,9 @@
 ✦ Hello, hello. Welcome to my github!*
 </p>
 
-   <p align="center">
-    <img width="382" height="12" alt="ceeed9db" src="https://github.com/user-attachments/assets/97eab1fb-87a1-4a35-b16b-72c7ce18b591" /> <img width="382" height="12" alt="ceeed9db" src="https://github.com/user-attachments/assets/97eab1fb-87a1-4a35-b16b-72c7ce18b591" />
-    </p>
+ <p align="center">
+   <img width="382" height="12" alt="bone" src="https://github.com/user-attachments/assets/e24d9fe6-8641-435d-9c6a-739ce76f6f84" /> <img width="382" height="12" alt="bone" src="https://github.com/user-attachments/assets/cacba9b2-de22-42fe-b425-6617ab4afcf2" />
+ </p>
 
 *<p align="center">
 ✦ Now, if you're wondering:* ***,,hmm do i interact :eyes:.."*** *✦ Then yes! Of course! Noli doesn't mind if you do so.*
@@ -37,8 +37,9 @@
 ✦ If you couldn't tell by now, i'm a heavy noli fictionkin! (yes, that does include all of them.) so don't say any weird things about noli if i don't know you </3.* 
 </p>  
 
-<p align="center">
-    <img width="382" height="12" alt="ceeed9db" src="https://github.com/user-attachments/assets/97eab1fb-87a1-4a35-b16b-72c7ce18b591" /> <img width="382" height="12" alt="ceeed9db" src="https://github.com/user-attachments/assets/97eab1fb-87a1-4a35-b16b-72c7ce18b591" />
+ <p align="center">
+   <img width="382" height="12" alt="bone" src="https://github.com/user-attachments/assets/e24d9fe6-8641-435d-9c6a-739ce76f6f84" /> <img width="382" height="12" alt="bone" src="https://github.com/user-attachments/assets/cacba9b2-de22-42fe-b425-6617ab4afcf2" />
+ </p>
 
 *<p align="center">
 ✦ If you want more information about me, feel free to check out my strawpage and pronounspage down below! Have a blessed day, mortal. :^)*
