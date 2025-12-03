@@ -9,7 +9,8 @@
       <a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Fira+Code&duration=1000&pause=1000&color=5F417D&center=true&vCenter=true&width=435&lines=There+was+a+time+i+ruled+the+skies%2C;covered+in+shades+of+blue." alt="Typing SVG" /></a>
   </p>
 
-<img width="998" height="546" alt="Drawing-1 sketchpad (1)" src="https://github.com/user-attachments/assets/8d7d448c-fc43-48c9-8226-f23442642618" />
+<p align="center">
+  <img width="998" height="546" alt="Drawing-1 sketchpad (1)" src="https://github.com/user-attachments/assets/8d7d448c-fc43-48c9-8226-f23442642618" />
 </p>
 
    <p align="center">
