@@ -10,7 +10,7 @@
   </p>
 
 <p align="center">
-  <img width="998" height="546" alt="Drawing-1 sketchpad (1)" src="https://github.com/user-attachments/assets/8d7d448c-fc43-48c9-8226-f23442642618" />
+  <img width="998" height="546" alt="nolay" src="https://github.com/user-attachments/assets/a0e7da84-d119-4dab-8f0d-8cf7ee5bcb30" />
 </p>
 
    <p align="center">
