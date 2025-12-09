@@ -1,7 +1,4 @@
-*<p align="center">
-color my totally amazing tree -> [my beautiful tree](https://colormytree.me/2025/01JEMR54RS68Y201YN42XAX0T5?page=1)*
- 
- <p align="center">
+<p align="center">
   grounded. wont be as active, if you see me on pt im most likely offtab.
  
  <p align="center">
