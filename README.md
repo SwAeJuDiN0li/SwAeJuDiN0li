@@ -1,5 +1,5 @@
 <p align="center">
-  grounded. wont be as active, if you see me on pt im most likely offtab.
+  grounded, but will try to stay active.
  
  <p align="center">
    <img width="382" height="12" alt="bone" src="https://github.com/user-attachments/assets/e24d9fe6-8641-435d-9c6a-739ce76f6f84" /> <img width="382" height="12" alt="bone" src="https://github.com/user-attachments/assets/cacba9b2-de22-42fe-b425-6617ab4afcf2" />
