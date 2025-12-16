@@ -1,7 +1,4 @@
 <p align="center">
-  grounded, but will try to stay active.
- 
- <p align="center">
    <img width="382" height="12" alt="bone" src="https://github.com/user-attachments/assets/e24d9fe6-8641-435d-9c6a-739ce76f6f84" /> <img width="382" height="12" alt="bone" src="https://github.com/user-attachments/assets/cacba9b2-de22-42fe-b425-6617ab4afcf2" />
  </p>
   
