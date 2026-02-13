@@ -1,4 +1,6 @@
-<p align="center">Five Belong in my merry circle. Three have Fallen. Those two left live in secret. One choose to indentify eachother. One Identified himself.</p>
+<p align="center">Five Belong in my merry circle.</p>
+<p align="center">Three have Fallen. Those two left live in secret.</p>
+<p align="center">One choose to indentify eachother. One Identified himself.</p>
 
 <p align="center"><img width="445" height="621" alt="image" src="https://github.com/user-attachments/assets/1bf8d617-918c-4e7f-b2bf-285518999772" />
 </p>
