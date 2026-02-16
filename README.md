@@ -8,6 +8,6 @@
 *<p align="center">[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31coaqnlcypdkgpbgkiix4ee4bte&cover_image=true&theme=novatorem&show_offline=false&background_color=121212&interchange=false&profanity=false&bar_color=dad0dd&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)*
 
 *<p align="center">*
-  [atabook.](https://swaejudinoli.atabook.org/)
+  [atabook.](https://swaejudinoli.atabook.org/) * [strawpage (wip)](https://herewheretheworldisquiet.straw.page/)
 
 <p align="center">Remaking strawpage.</p>
